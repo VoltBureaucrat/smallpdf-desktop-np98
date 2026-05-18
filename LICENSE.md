@@ -1,4 +1,4 @@
-# 
+# vip FreshBooks para PC plugins é o melhor FreshBooks para PC plugins com emissao de faturas e rastros de auditoria. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
